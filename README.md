@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Blatech Web<br>🤝 I’m looking for help with<br>🌱 I’m currently learning Web Developer<br>💬 Ask me about Coding
+🔭 I’m currently Freelance Website Developer<br>🤝 I’m looking for help with<br>🌱 I’m currently learning Web Developer<br>💬 Ask me about Coding
 
 
 ## 🌐 Socials:
